@@ -1,1 +1,0 @@
-# yunusemreyard-mweb-devi
